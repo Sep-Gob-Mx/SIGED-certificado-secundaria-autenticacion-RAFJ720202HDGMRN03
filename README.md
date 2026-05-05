@@ -1,0 +1,2 @@
+# SIGED-certificado-secundaria-autenticacion-RAFJ720202HDGMRN03
+RAFJ720202HDGMRN03
